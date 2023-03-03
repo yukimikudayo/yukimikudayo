@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+Twitter : https://twitter.com/yukimikudayo
+
+Mastodon : https://oransns.com/@yukimikudayo
+
+Misskey : https://oran.ski/@yukimikudayo
